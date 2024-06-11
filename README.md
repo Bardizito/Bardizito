@@ -4,4 +4,5 @@
 - 😄 Pronomes: Ele/Dele
 - ⚡ Curiosidade: Aprender arte digital
 
+![](https://www.icegif.com/wp-content/uploads/2023/07/icegif-541.gif)
 ![](https://www.icegif.com/wp-content/uploads/2023/07/icegif-539.gif)
